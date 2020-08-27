@@ -1,1 +1,0 @@
-# Sachina-karki-
